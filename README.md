@@ -11,3 +11,5 @@
 有问题或者特殊需求直接建Issue。
 
 linsun84@gmail.com
+
+欢迎志同道合的小伙伴加入校宝一起来搞有意思的事情！https://www.xiaobaoonline.com/pc/contactjoin 
